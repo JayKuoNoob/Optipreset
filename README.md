@@ -3,4 +3,4 @@
 
 ### Chinese Tutorial
 https://youtu.be/ny6zHserVYk
-![image](https://media.discordapp.net/attachments/1115180823038148649/1137424237536235520/-1.png?width=1246&height=350)
+![image](https://media.discordapp.net/attachments/1115180823038148649/1137424237536235520/-1.png?width=1246&height=701)
